@@ -4,3 +4,4 @@ Maximo González Garza is a 14-year-old supermoto competitor racing under #12, a
 ​Rather than chasing short-term lap times, Maximo prioritizes chassis feedback, precise line selection, and corner geometry—proving that sustainable speed and competitive edge stem directly from mastering the fundamentals of racecraft
 
 INSTAGRAM- @maximog660
+CARRD-  https://maximogonzalezgarzasupermoto.carrd.co 
